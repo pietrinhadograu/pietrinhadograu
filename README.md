@@ -2,4 +2,5 @@
 
 MENTE MILIONARIA
 
-![](https://tenor.com/pt-BR/view/harley-quinn-mad-love-joker-kiss-gif-12746177)
+![](https://media1.tenor.com/m/CZMqKo3iR64AAAAC/funny-love.gif)
+
